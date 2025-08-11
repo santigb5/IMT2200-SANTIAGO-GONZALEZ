@@ -1,2 +1,3 @@
 # IMT2200-SANTIAGO-GONZALEZ
-NO SE A QUE SE REFIERE CON EDITARLO 
+santiago gonzalez bunzli licd 
+
